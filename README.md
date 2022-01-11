@@ -2,7 +2,7 @@
 ASAP MARKET Darkweb Link Url deepweb link Darknet markets list Verified Link 2022 Updated
 
 |Market|Link|
-|----|----|1.251246720000
+|----|----|
 |ASAP Market|[asap4uqsmdujt6ehoktmxogdaypfmucznnerdggfg6ol5vzrtwod6oid.onion](http://asap4uqsmdujt6ehoktmxogdaypfmucznnerdggfg6ol5vzrtwod6oid.onion)
 
      
